@@ -8,8 +8,8 @@
 * yanderedevleak.jimdofree.com
 
 [https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.001](https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.001)
-[Part https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.002](https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.002)
-[Part https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.003](https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.003)
-[Part https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.004](https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.004)
-[Part https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.005](https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.005)
-[Part https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.006](https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.006)
+[https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.002](https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.002)
+[https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.003](https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.003)
+[https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.004](https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.004)
+[https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.005](https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.005)
+[https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.006](https://github.com/eeeeesir/yandev-leak-comprezz/raw/master/YandereSimulator-development.7z.006)
